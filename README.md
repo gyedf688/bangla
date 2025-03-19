@@ -1,1 +1,1 @@
-in.tiktok.com 
+upcoming-pizx.shopify.com
