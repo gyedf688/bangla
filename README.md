@@ -1,1 +1,1 @@
-upcoming-pizx.shopify.com
+shopify.com
